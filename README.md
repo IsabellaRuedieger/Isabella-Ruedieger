@@ -10,5 +10,4 @@ Meu nome é Isabella Ruedieger
 
 bellaruedieger@gmail.com
 
-![](https://tenor.com/bpChewIUsUT.gif)
-
+https://tenor.com/bpChewIUsUT.gif
