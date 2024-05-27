@@ -10,5 +10,5 @@ Meu nome é Isabella Ruedieger
 
 bellaruedieger@gmail.com
 
-![](https://github.com/IsabellaRuedieger/Isabella-Ruedieger/assets/170437313/27e32dcd-2339-4a7a-82d4-4e58b5ddaf97)
+![](https://tenor.com/bpChewIUsUT.gif)
 
